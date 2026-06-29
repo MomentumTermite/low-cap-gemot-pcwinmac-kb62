@@ -1,4 +1,4 @@
-# 
+# Instantáneo low cap gem sniper bot plugins para Mac OS | Actualizado low cap gem sniper bot plugins para PC Windows. Con análisis de volumen y órdenes de take-profit — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
